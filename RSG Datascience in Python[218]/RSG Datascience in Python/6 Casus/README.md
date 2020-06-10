@@ -1,1 +1,0 @@
-# Novalinq_Cursus_Python2_Mirjam
